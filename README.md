@@ -1,3 +1,7 @@
+# Hjemmeopgaver  19-09-2017
+___
+• Opaver fuldført og uploaded. (inklusiv 1.3)
+
 # Hello world 14-09-2017
 ___
 
